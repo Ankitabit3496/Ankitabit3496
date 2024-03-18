@@ -1,4 +1,4 @@
-### Hi there :woman_raising_hand:
+### Hi there 👋
 
 - 🔭 I’m @Ankitabit3496 (Ankita)
 - 🌱 I’m passionate towards Software Engineering.
